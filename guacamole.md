@@ -2,7 +2,7 @@
 
 ## Ingredients
 * avocado
-* lemon juice
+* lime juice
 * salt
 * cilantro
 
