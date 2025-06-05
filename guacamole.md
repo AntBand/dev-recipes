@@ -7,4 +7,6 @@
 * cilantro
 
 ## Instructions
+1. Cut and mash avocado
+2. Add remaining ingredients
 
